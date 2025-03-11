@@ -16,6 +16,12 @@
 
 ---
 
+## 시연 영상 및 PPT
+https://www.miricanvas.com/v/14axxoz
+https://www.youtube.com/watch?v=nvhe9CZiGgs
+
+---
+
 ## 📌 팀원 소개 및 역할 분담  
 
 | 이름 | 역할 | 주요 업무 |
