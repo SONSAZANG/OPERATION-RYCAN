@@ -17,8 +17,9 @@
 ---
 
 ## 시연 영상 및 PPT
-https://www.miricanvas.com/v/14axxoz
-https://www.youtube.com/watch?v=nvhe9CZiGgs
+[시연 PPT 링크](https://www.miricanvas.com/v/14axxoz)
+
+[시연 영상 유튜브 링크](https://www.youtube.com/watch?v=nvhe9CZiGgs)
 
 ---
 
